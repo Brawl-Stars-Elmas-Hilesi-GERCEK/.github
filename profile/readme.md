@@ -1,4 +1,4 @@
-<h1>Brawl Stars Elmas Hilesi - ＧＥＲÇＥＫ</h1>
+<h1>Brawl Stars Elmas Hilesi - GERÇEK</h1>
 
 Brawl Stars Elmas Hilesi gerçek, çalışan haliyle bedava olarak sizlerle. Brawl stars elmas hilesi kodu aramana gerek yok 100000 elmas hilesini veya 4000 elmas hilesini beleş olarak sana zaten alttaki sitede sundum. Daha ne istiyorsun? Diğer siteleri dolaşıp telefon numaranı veya paranı kaptırma. Telefon numarasız ve ücretsiz bir hileyi senle paylaştım. Bir teşekkür etsen yeter.
 
